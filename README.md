@@ -268,3 +268,12 @@
 
 </body>
 </html>
+The Media is the last to fall.Libel 
+Laws..#ProjectOdin..Research. Don't expect the 6 
+o'clock news to tell you. #KnowYourEnemy.I give you so much. See the patterns, join the dots. The EBS (Disclosure of the Operation plus more) to come when THE EVENT happens. Strathy following the XRP Ripple Case. THE ISO20022 Regulation is the big catalyst in the US vs China Tech War (The Event is based around that as well as other things)
+The XRP and XLM tokens are very necessary to HODL at this point time in regards to the fact tha(they are backed by SILVER and GOLD.. And who said we won't be able to TRANSACT with any of them?,, The iso20022 tokens (XRP and XLM) are the only tokens that will survive the great reset and would emerge as the only means of fnancial activities in the new QFS 
+..So defnitely the iso20022tokens would perform every transaction processes when we fnally witness the new QFS
+The gist of which is that soon, all banks all overthe world are using QFS (QUANTUM FINANCIAL 
+SYSTEM),exclusively. Confrmed by a variety of sources in manypositions of authority… No more SWIFT allowed. Period. Dropthe mike and depart stage Left. No more discussion allowed.Any banks attempting to transfer money via SWIFT losestheir ability to be in the banking/fnancial industry. The (WhiteHat) authorities are not fooling around.It’s all about putting a fnal nail in the cofn for “MoneyLaundering” and corrupt bad acts.
+Confrmed by a variety of sources in manypositions of authority… No more SWIFT allowed. Period. Dropthe mike and depart stage Left. No more discussion allowed.Any banks attempting to transfer money via SWIFT losestheir ability to be in the banking/fnancial industry. The (WhiteHat) authorities are not fooling around.It’s all about putting a fnal nail in the cofn for “MoneyLaundering” and corrupt bad acts. When the population atlarge – and the bad actors involved in illegal activity, learnthat the QFS is tracking the movement of money for 50moves (and more), they will break out in more than a sweat.The desperation will have set in, leading to 
+(potentially)desperate acts. Hence all the doom and gloom warningvideos and discussions about EMF attacks/power failure/blackouts, whatever the evil Cabal might entertain inretaliation, it’s possible, but not probable.
